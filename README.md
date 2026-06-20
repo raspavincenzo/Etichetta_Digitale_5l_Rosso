@@ -1,0 +1,1 @@
+# Etichetta_Digitale_5l_Rosso
